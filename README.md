@@ -1,2 +1,0 @@
-# Jayasree_Resume
-Resume
